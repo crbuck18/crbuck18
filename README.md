@@ -1,11 +1,8 @@
 ## Personal Information - 
 Christopher R. Buck 
 
-s
-s
-
-s
-
+6230 Emerald Dr. 
+Grand Blanc, Michigan 48439
 
 ## Social Media Profiles - 
 
