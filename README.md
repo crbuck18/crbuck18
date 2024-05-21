@@ -1,6 +1,10 @@
 ## Personal Information - 
 Christopher R. Buck 
 
+s
+s
+
+s
 
 
 ## Social Media Profiles - 
