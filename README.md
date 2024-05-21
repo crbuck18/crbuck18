@@ -4,6 +4,10 @@ Christopher R. Buck
 6230 Emerald Dr. 
 Grand Blanc, Michigan 48439
 
+Phone - 1(810)428-6402 
+
+Email - christopherrbuck34@gbstu.org
+
 ## Social Media Profiles - 
 
 
