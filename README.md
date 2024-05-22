@@ -14,6 +14,9 @@ Grand Blanc, Michigan 48439
 * Current GPA - 3.742
 
 
+## Skillset - 
+
+
 
 
 <!--
