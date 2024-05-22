@@ -8,7 +8,12 @@ Phone - 1(810)428-6402
 
 Email - christopherrbuck34@gbstu.org
 
-## Social Media Profiles - 
+## Education - 
+High School Diploma Grand Blanc High School – Expected graduation in June of 2025 
+
+Current GPA - 3.742
+
+
 
 
 <!--
