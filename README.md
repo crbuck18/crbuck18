@@ -1,17 +1,17 @@
 ## Personal Information - 
-* Christopher R. Buck 
+Christopher R. Buck 
 
-6230 Emerald Dr. 
+* 6230 Emerald Dr. 
 Grand Blanc, Michigan 48439
 
-Phone - 1(810)428-6402 
+* Phone - 1(810)428-6402 
 
-Email - christopherrbuck34@gbstu.org
+* Email - christopherrbuck34@gbstu.org
 
 ## Education - 
-High School Diploma Grand Blanc High School – Expected graduation in June of 2025 
+* High School Diploma Grand Blanc High School – Expected graduation in June of 2025 
 
-Current GPA - 3.742
+* Current GPA - 3.742
 
 
 
